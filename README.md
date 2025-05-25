@@ -1,4 +1,4 @@
-# srnsksyp-
+# srnsksyp
 🚀 About me, my tech stack, and projects
 
 ## 🌐 Socials:
